@@ -2,7 +2,7 @@
 
 ✅ Video Demonstration [Watch the video here](https://youtu.be/JvvKSaVsv1M?si=ESQeDixj9svPf-Qb)
 
-✅ CodeTantra Completion Link [View my CodeTantra completion](https://your-codetantra-link.com)
+✅ CodeTantra Completion Link [View my CodeTantra completion](https://drive.google.com/file/d/1k0QGU_oUVqnaoRUT9wUDRXt3ok8siHKP/view?usp=drivesdk)
 
 ✅ Download Cisco Certificate [Download Certificate](certificate.pdf)
 
