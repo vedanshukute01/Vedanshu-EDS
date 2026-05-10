@@ -4,7 +4,7 @@
 
 ✅ CodeTantra Completion Link [View my CodeTantra completion](https://drive.google.com/file/d/1k0QGU_oUVqnaoRUT9wUDRXt3ok8siHKP/view?usp=drivesdk)
 
-✅ Download Cisco Certificate [Download Certificate](certificate.pdf)
+✅ Download Cisco Certificate [Download Certificate](https://drive.google.com/file/d/1k2rRCew4tpQ65gAYIn9iS-3t4hOTEMzr/view?usp=drivesdk)
 
 ✅ Practical 1 [practical 1](practical1.pdf)
 
